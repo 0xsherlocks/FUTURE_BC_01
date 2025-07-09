@@ -56,7 +56,7 @@ Using Binance allowed me to explore how a real-world crypto exchange works, whic
 
 **Gulshan Kumar**  
 Intern, Future Interns – Blockchain & Crypto Track  
-[LinkedIn](https://linkedin.com/in/gulshan90) | Email: gmail:gboy90raj@gmail.com 
+[LinkedIn](https://linkedin.com/in/gulshan90) | Email: gboy90raj@gmail.com 
 
 
 
